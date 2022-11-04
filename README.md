@@ -1,1 +1,1 @@
-# Checkout [https://abacaxiguy.me/](https://abacaxiguy.me/)
+# Checkout [https://abacaxiguy.me](https://abacaxiguy.me)
